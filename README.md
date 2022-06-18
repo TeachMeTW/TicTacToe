@@ -38,7 +38,8 @@
 <br/><br/>
 
 # output:
-![img](https://gfycat.com/realreflectingchihuahua)
+
+https://gfycat.com/realreflectingchihuahua
 
 
 </pre>
