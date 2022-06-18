@@ -32,12 +32,13 @@
 <br><br>
 
 # Reflections:
-
+  - The hardest part is debugging the win condition checks
+  - Otherwise a simple project
 
 <br/><br/>
 
 # output:
-![img]()
+![img](https://thumbs.gfycat.com/RealReflectingChihuahua-mobile.mp4)
 
 
 </pre>
